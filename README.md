@@ -1,2 +1,1 @@
-# yes
-this is veyr nice okookko!!!
+yes pythonaklsdflaskdjfasjklfsjl jslkdfjslkdfjl
